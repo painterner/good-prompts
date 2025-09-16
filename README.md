@@ -25,3 +25,7 @@ steampunk style
 
 ## ****
 * A dog is so tired from working in front of the computer that he lies down, but he still holds up the OK sign and says I'am OK, cute meme, simple meme, very funny， comic illustrations style
+
+
+## ***
+* The video cover has a lot of text, including "Corgi", "shopping", "swinging the dog", "walking the dog together", "actually jumping up and dancing", exclamation marks, and eye-catching text in different colors.
